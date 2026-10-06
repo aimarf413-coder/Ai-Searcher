@@ -2,7 +2,9 @@
 
 > Ultra-sleek Galactic Liquid Glass Private Searcher & Cloaked Browser powered by **Ultraviolet**, **BareMux**, and **Epoxy Wisp**.
 
-Made by **Edgarr :>**
+Made by **Google Antigravity "cool shi ngl" :>**
+
+everything below this is js ai shit
 
 ---
 
